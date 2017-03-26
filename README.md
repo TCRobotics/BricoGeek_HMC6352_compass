@@ -1,0 +1,1 @@
+# BricoGeek_HMC6352_compass
